@@ -2,7 +2,7 @@
 <p> Hey! 👋 I'm Shahzodxo'ja Mavlonov (shahzodxojamavlonov).</p>
 
 - YouTube:            https://www.youtube.com/@shahzodxojamavlonov5044
-- instagram:          https://www.instagram.com/shahzodxojamavlonov17
+- instagram:          https://www.instagram.com/shahzodxojamavlonov17?igsh=OGQ5ZDc2ODk2ZA==
 - Telegram:           https://t.me/Shahzodxoja_Mavlonov
 - Tik Tok:            https://www.tiktok.com/@shahzodxojamavlonov?_t=8iQWlaZha1i&_r=1
 ## Main tools 
